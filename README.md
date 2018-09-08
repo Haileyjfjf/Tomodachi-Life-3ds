@@ -1,2 +1,2 @@
-# Tomodachi-Life-3ds
-I am putting this here for tomodachi life titledb.com download
+# Netflix 3ds cia
+I am putting this here for Netflix titledb.com download
